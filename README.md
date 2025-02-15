@@ -1,1 +1,1 @@
-# s-h-a-v-qu-n-tr-th-ng-tin-s-
+# số hóa và quản trị thông tin số
